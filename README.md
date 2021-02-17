@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... well I always learn sth new.
 - 💞️ I’m looking to collaborate on cool stuff
 
-ps: check out the chubby dog on my profile pic
+ps: check out the chubby dog on my profile pic. He is cute and probably thinking of more food isn't he? hahaha
 
 <!---
 nico-on-vacation/nico-on-vacation is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
